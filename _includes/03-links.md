@@ -1,1 +1,1 @@
-[Go to YouTube](https://www.youtube.com/)
+[YouTube](https://www.youtube.com/)
